@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @UiuxArun28
 - 👀 I’m interested in UIUX Design
-- 🌱 I’m currently learning B.Tech student and Video Editor
+- 🌱 I’m currently learning B.Tech student
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
